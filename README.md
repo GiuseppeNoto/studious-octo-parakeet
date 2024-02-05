@@ -1,2 +1,7 @@
 # studious-octo-parakeet
-Sesso gnu beach
+Amore Amore Amore
+DIO
+MARIA
+GIUSEPPE
+GESù
+Adam kad-mon
